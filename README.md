@@ -4,7 +4,6 @@
 muchas gracias.
 
 **Hola Grupo**: Una cosa es ayudarles a afinar lo avanzado y otra es hacer el trabajo por ustedes, partiendo en un pequeñísimo avance. Puedo hacer lo primero. No haré lo segundo. 
-**Hola** Profesor no esperabamos que nos hiciera el trabajo, solo una ayuda poque no entiendo como se incluyen las animaciones,  gracias.
 
 - - - - - - - -
 
